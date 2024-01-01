@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @celiakig
+- 👀 I’m interested in special education cognitive material
+- 🌱 I’m currently learning to use ai and make material for my students
+- 
